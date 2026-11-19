@@ -1,0 +1,1 @@
+# AnaghaBG_Market-Research-Data-Analyst-Assessment1
